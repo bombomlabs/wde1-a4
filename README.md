@@ -4,4 +4,5 @@
 
 ### Tony Yu
 ### Ermelyne Charles
-### TBA
+### Émilie Prud'homme-Lafortune (a professional )
+
