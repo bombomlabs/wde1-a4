@@ -6,4 +6,4 @@
 ### Ermelyne Charles
 ### Émilie Prud'homme-Lafortune (a professional )
 
-Have a good Christmast break. Let's eat a tumpling great amont of chocolate! <-- Thank you!!
+Have a good Christmast break. Let's eat a tumpling great amont of chocolate! <-- Thank you very much!!
