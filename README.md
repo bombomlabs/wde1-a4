@@ -6,4 +6,4 @@
 ### Ermelyne Charles
 ### Émilie Prud'homme-Lafortune (a professional )
 
-Hello World, Montreal!!
+Have a good Christmast break. Let's eat a tumpling great amont of chocolate!
